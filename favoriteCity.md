@@ -1,4 +1,4 @@
-My fav city is Seattle
-My fav city is Switzerlan
+My fav city is Switzerland
 I love Hyderabad.....
 Added STATE WA
+I love LA and Dubai.....
